@@ -1,1 +1,3 @@
 # Construcci-n-de-campos-t-cnica-y-tradici-n
+"La construcción de un campo agrícola es un arte que combina habilidad, paciencia y precisión. Desde el primer momento en que se selecciona la ubicación de los postes hasta la meticulosa tarea de cavar en una tierra que cambia de textura y composición con cada pala de profundidad, cada paso es crucial. Utilizando herramientas específicas para penetrar la greda y asegurar que cada poste alcance la profundidad deseada, se revela no solo la destreza física requerida, sino también el conocimiento profundo del terreno."
+https://marcelohidalgosola.com.ar/armando-un-campo/armando-un-campo-con-la-meticulosa-tarea-de-cavar-y-plantar-postes/
